@@ -1,1 +1,0 @@
-Nandini Quick Start Document
